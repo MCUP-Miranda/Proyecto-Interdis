@@ -1,1 +1,1 @@
-# Proyecto-Interdis
+# Proyecto-Interdisciplinario
